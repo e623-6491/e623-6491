@@ -3,3 +3,4 @@
 2. hi
 3. coding.
 # ALSO CHECK OUT MY SITE HTTPS://E623.CARRD.CO THERE IS COUNTDOWN TO YES ON IT.
+swedish hacker/スウェーデン語のハッカー
